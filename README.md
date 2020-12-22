@@ -3,4 +3,4 @@
 
 Sup,
 
-I like to bang playboy models
+I like eating fried chicken
